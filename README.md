@@ -4,7 +4,7 @@
 ## Single mother of 2 :sleeping: :sob: :yellow_heart: :family:
 ### My children are my life :boy: :girl:
 ### Work from home :monkey_face: :e-mail:
-## "I one bought my kids a set of batteries for Christmas with a note on it saying toys not included." :rofl::rofl::rofl::rofl::rofl::rofl::rofl:
+## "I once bought my kids a set of batteries for Christmas with a note on it saying toys not included." :rofl::rofl::rofl::rofl::rofl::rofl::rofl:
 ##### -Bernard Manning
 #### Leviticus 18:22:heart_decoration:
 #### Trust the bible and keep the bible in your heart :sparkle: :latin_cross: :angel:
