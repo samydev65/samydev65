@@ -1,11 +1,11 @@
 ![](https://cdn.discordapp.com/attachments/861464766153359370/1069369734962872411/Untitled-1.jpg)
 
-# About me :woman: :smile:
-## Single mother of 2 :sleeping: :sob: :yellow_heart: :family:
-### My children are my life :boy: :girl:
-### Work from home :monkey_face: :e-mail:
-## "I once bought my kids a set of batteries for Christmas with a note on it saying toys not included." :rofl::rofl::rofl::rofl::rofl::rofl::rofl:
-##### -Bernard Manning
-#### Leviticus 18:22 :heart_decoration:
-#### Trust the bible and keep the bible in your heart :sparkle: :latin_cross: :angel:
+# About Me :computer: :rocket:
 
+Just a guy uploading projects on GitHub :sunglasses: :keyboard: :zap:
+Coding, learning, and messing around with ideas :nerd_face: :bulb:
+Working on random projects whenever I get the motivation :sleeping: :coffee:
+“I will be uploading my projects here, updating them, and building new stuff as I go.” :hammer_and_wrench::sparkles:
+-Me probably
+I keep my repos organized… most of the time :file_folder: :woozy_face:
+Trust the process and commit often :sparkle: :floppy_disk: :pray:
